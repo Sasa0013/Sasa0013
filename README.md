@@ -5,6 +5,6 @@
 
   ### Não entre em contato comigo!! não sei socializar 🫶🫶
 
-  - Meu insta caso vocês sejam teimosos @13.22co
+  - Meu insta pros mais corajosos 😼 @13.22co
   
  ![](https://media1.tenor.com/m/Z5x6xrH6_AQAAAAC/cat-kissing.gif)
