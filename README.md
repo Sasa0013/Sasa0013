@@ -5,8 +5,8 @@
 
   ### Apenas para uso escolar por enquanto 🫶🫶
 
-  - Entrem em contato comigo!!
- 
-    0000110213336xsp@al.educacao.sp.gov.br
+- Entrem em contato comigo!!
+
+  0000110213336xsp@al.educacao.sp.gov.br
   
  ![](https://media1.tenor.com/m/Z5x6xrH6_AQAAAAC/cat-kissing.gif)
