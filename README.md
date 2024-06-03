@@ -3,8 +3,10 @@
 - estudante do [alura](https://www.alura.com.br/) graças ao novo ensino médio 😿
 - Uploade de alguns projetos meus para organização
 
-  ### Não entre em contato comigo!! não sei socializar 🫶🫶
+  ### Apenas para uso escolar por enquanto 🫶🫶
 
-  - Meu insta pros mais corajosos 😼 @13.22co
+  - Entrem em contato comigo!!
+ 
+    0000110213336xsp@al.educacao.sp.gov.br
   
  ![](https://media1.tenor.com/m/Z5x6xrH6_AQAAAAC/cat-kissing.gif)
